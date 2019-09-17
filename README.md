@@ -1,1 +1,1 @@
-# lovgrenpartners
+# Lövgren & Partners
